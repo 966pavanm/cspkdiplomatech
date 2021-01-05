@@ -1,0 +1,2 @@
+# cspkdiplomatech
+just fun
